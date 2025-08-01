@@ -1,6 +1,7 @@
 # Day 1
 1. 8:30am to 9:30am
       * In gurudwara sahib we took the blessings from god for our secure future.
+        ![Gurudwara Sahib](525867665_1175946667909379_2340538388970039689_n.jpg)
 
 2. 9:30am to 10:00am:
       * Guru ka Langar
