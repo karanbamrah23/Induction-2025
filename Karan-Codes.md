@@ -53,4 +53,15 @@
         which was "Sucsess is not key to happiness, Happiness is the key to success", after that we started moving to homes.  <br><br>
         <img src="human values (day 3).jpg" width="200" height="200">
 
+        # Day 4
+        1. English lecture by prof. Asthik sharma (9:30am to 10:30am)
+             I started the day with god blessings and procedded to our classroom. My lecture was in
+             mechanical seminar hall, teacher entered the classroom and sir gave his introduction and
+             asked us few basic questions to check our english level, Basicaly today's lecture is an
+             introductory lecture.
+        2. Chemistry lecture by prof. Karan bhalla (10:30am to 11:30am)
+           After the english lecture prof. Karan bhalla sir arrived in our classroom and gave us their
+           introduction and we also did the same. Sir told about how the curriculum and examination system works in campus. I really enjoyed their class as it was one on one interaction with sir.
+            
+
 
