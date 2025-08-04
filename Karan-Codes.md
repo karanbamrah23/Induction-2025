@@ -47,7 +47,7 @@
         Nankana sahib education trust had arrived and given him respect by the official GNDEC award.<br><br>
         <img src="dr jaswinder singh (day 3).jpg" width="200" height="200">
 
-2. Lecture by universal human values teacher on "Is success only suficient to be happy in life" (11:00am to 1:00pm)
+2. Lecture by Dr. Priya darshini mam on "Universal human values" (11:00am to 1:00pm)
       * The teacher started the lecture and explains us everything about the topic with the help of presentation. There are some doubts of the students which
         they have asked to the teacher and she clearly resolve their doubts in a simple and intresting way. At the end she ended the lecture by a quote
         which was "Sucsess is not key to happiness, Happiness is the key to success", after that we started moving to homes.  <br><br>
@@ -62,6 +62,16 @@
         2. Chemistry lecture by prof. Karan bhalla (10:30am to 11:30am)
            After the english lecture prof. Karan bhalla sir arrived in our classroom and gave us their
            introduction and we also did the same. Sir told about how the curriculum and examination system works in campus. I really enjoyed their class as it was one on one interaction with sir.
+
+        3. Lecture by Dr. Priya darshini mam (12:30pm to 2:30pm)
+              She tells us about how to make happiness continuous in life and tells us the difference between happiness and excitment.
+              She also tells us not to take your decisions by pre-conditioning and several other things that make our happiness continuous.
+
+        4. Causmic club session by students (2:30pm to 3:30pm)
+              Students performed on the stage by singing songs and other performances like shayari, songs, etc. After that two students came
+           on stage and gave information about laptop, which laptop is best for IT and computer science students. They gave a brief information
+           about all the parts of laptop and on which part you should focus according to your need, after that they concluded the session.
+                  
             
 
 
