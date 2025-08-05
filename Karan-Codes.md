@@ -53,37 +53,38 @@
         which was "Sucsess is not key to happiness, Happiness is the key to success", after that we started moving to homes.  <br><br>
         <img src="human values (day 3).jpg" width="200" height="200">
 
-        # Day 4
-        1. English lecture by prof. Asthik sharma (9:30am to 10:30am)
-            * I started the day with god blessings and procedded to our classroom. My lecture was in
+# Day 4
+
+1. English lecture by prof. Asthik sharma (9:30am to 10:30am)
+      * I started the day with god blessings and procedded to our classroom. My lecture was in
              mechanical seminar hall, teacher entered the classroom and sir gave his introduction and
              asked us few basic questions to check our english level, Basicaly today's lecture is an
              introductory lecture.
-        2. Chemistry lecture by prof. Karan bhalla (10:30am to 11:30am)
-            * After the english lecture prof. Karan bhalla sir arrived in our classroom and gave us their
+2. Chemistry lecture by prof. Karan bhalla (10:30am to 11:30am)
+      * After the english lecture prof. Karan bhalla sir arrived in our classroom and gave us their
            introduction and we also did the same. Sir told about how the curriculum and examination system works in campus. I really enjoyed their class as it was one on one interaction with sir.
 
-        3. Lecture by Dr. Priya darshini mam (12:30pm to 2:30pm)
-              * She tells us about how to make happiness continuous in life and tells us the difference between happiness and excitment.
+3. Lecture by Dr. Priya darshini mam (12:30pm to 2:30pm)
+      * She tells us about how to make happiness continuous in life and tells us the difference between happiness and excitment.
               She also tells us not to take your decisions by pre-conditioning and several other things that make our happiness continuous.
 
-        4. Causmic club session by students (2:30pm to 3:30pm)
-               * Students performed on the stage by singing songs and other performances like shayari, songs, etc. After that two students came
+4. Causmic club session by students (2:30pm to 3:30pm)
+      * Students performed on the stage by singing songs and other performances like shayari, songs, etc. After that two students came
            on stage and gave information about laptop, which laptop is best for IT and computer science students. They gave a brief information
            about all the parts of laptop and on which part you should focus according to your need, after that they concluded the session.
 
-           # Day 5
+# Day 5
 
-        1. P2P Lecture (9:30am to 10:30am)
-             * Our senior students took this lecture which is about computer programming language C++. They started with the basic introduction
+1. P2P Lecture (9:30am to 10:30am)
+      * Our senior students took this lecture which is about computer programming language C++. They started with the basic introduction
               with C++ language and tells us various other things about the language for ex: data types, string, variable etc.
    
-        2. Basic electronics and electrical engineering lecture by Prof. Simranjeet kaur (10:30am to 11:30am)
-              * First of all when mam entered the class she gave us their introduction and after that we started giving our introduction.
+2. Basic electronics and electrical engineering lecture by Prof. Simranjeet kaur (10:30am to 11:30am)
+   * First of all when mam entered the class she gave us their introduction and after that we started giving our introduction.
               Then she gave us the information about BEEE syllabus and also tells us about the books and at last she took the attendance.
-
-        3. Physics class (11:30am to 12:30pm)
-              * Actually it was our maths class but it got cancelled due to some reason and physics teacher took our class. First of all she took
+     
+3. Physics class (11:30am to 12:30pm)
+   * Actually it was our maths class but it got cancelled due to some reason and physics teacher took our class. First of all she took
               our attendance and then she asked some questions about physics and gave us information about some basic tools like vernier and
               screw gauge. In last 15 minutes we had a great fun by coming and entertaining on stage and at end all classes are over and we
               headed towards home.   
