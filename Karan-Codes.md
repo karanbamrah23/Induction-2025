@@ -72,18 +72,18 @@
            on stage and gave information about laptop, which laptop is best for IT and computer science students. They gave a brief information
            about all the parts of laptop and on which part you should focus according to your need, after that they concluded the session.
 
-           # Day 4
+           # Day 5
 
         1. P2P Lecture (9:30am to 10:30am)
-              Our senior students took this lecture which is about computer programming language C++. They started with the basic introduction
+             * Our senior students took this lecture which is about computer programming language C++. They started with the basic introduction
               with C++ language and tells us various other things about the language for ex: data types, string, variable etc.
    
         2. Basic electronics and electrical engineering lecture by Prof. Simranjeet kaur (10:30am to 11:30am)
-              First of all when mam entered the class she gave us their introduction and after that we started giving our introduction.
+              * First of all when mam entered the class she gave us their introduction and after that we started giving our introduction.
               Then she gave us the information about BEEE syllabus and also tells us about the books and at last she took the attendance.
 
         3. Physics class (11:30am to 12:30pm)
-              Actually it was our maths class but it got cancelled due to some reason and physics teacher took our class. First of all she took
+              * Actually it was our maths class but it got cancelled due to some reason and physics teacher took our class. First of all she took
               our attendance and then she asked some questions about physics and gave us information about some basic tools like vernier and
               screw gauge. In last 15 minutes we had a great fun by coming and entertaining on stage and at end all classes are over and we
               headed towards home.   
