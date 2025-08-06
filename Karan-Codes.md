@@ -87,7 +87,27 @@
    * Actually it was our maths class but it got cancelled due to some reason and physics teacher took our class. First of all she took
               our attendance and then she asked some questions about physics and gave us information about some basic tools like vernier and
               screw gauge. In last 15 minutes we had a great fun by coming and entertaining on stage and at end all classes are over and we
-              headed towards home.   
+              headed towards home.
+
+# Day 6
+
+1. Maths lecture by prof. Sukhminder singh (9:30am to 10:30am)
+      * I started the day with god blessings and procedded to our classroom. My lecture was in
+        mechanical seminar hall, teacher entered the classroom and sir gave us their is a intresting and unique, he given us tasks like
+        first task to find the maths syllabus from college website and second task was to find his profile from the same and i successfully
+        found it. After that he told us about some mathematics mobile applications for different purposes. My first lecture was very intresting and enjoyable.
+        
+2. BEEE lecture by prof. Simranjeet kaur (10:30am to 11:30am)
+      * Actually this class was taken by our senior students as mam has some urgent piece of work. Students taught us c++ programming
+        language and gave us an activity, after completing it class was concluded.
+
+3. Lecture by Sr. Gurcharan singh (12:30pm to 1:30pm)
+      * Sr.Gurcharan singh is trustee member of Nankana sahib public school and he tells about himself that how he was in study and which
+        college he had joined. He also talked with all students about how was college and about the facilities students were receiving.
+        
+4. Lecture by CLM incharge  (1:30pm to 3:30pm)
+      * He tells about the CLM club in which they organise several events to enhance our skills and to achieve new skills. He also tells us
+        about website on which several courses are available which will be added in our resume at the end of our degree. At the end he encourages us to participate in courses to achieve maximum certificates and lecture ended. 
                   
             
 
