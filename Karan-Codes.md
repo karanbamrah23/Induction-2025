@@ -68,6 +68,8 @@
       * She tells us about how to make happiness continuous in life and tells us the difference between happiness and excitment.
               She also tells us not to take your decisions by pre-conditioning and several other things that make our happiness continuous.
 
+        <img src="priya darshini mam.jpg" width="200" height="200"><br><br>
+
 4. Causmic club session by students (2:30pm to 3:30pm)
       * Students performed on the stage by singing songs and other performances like shayari, songs, etc. After that two students came
            on stage and gave information about laptop, which laptop is best for IT and computer science students. They gave a brief information
@@ -78,6 +80,8 @@
 1. P2P Lecture (9:30am to 10:30am)
       * Our senior students took this lecture which is about computer programming language C++. They started with the basic introduction
               with C++ language and tells us various other things about the language for ex: data types, string, variable etc.
+         <img src="seniors.jpg" width="200" height="200"><br><br>
+
    
 2. Basic electronics and electrical engineering lecture by Prof. Simranjeet kaur (10:30am to 11:30am)
    * First of all when mam entered the class she gave us their introduction and after that we started giving our introduction.
