@@ -107,7 +107,34 @@
         
 4. Lecture by CLM incharge  (1:30pm to 3:30pm)
       * He tells about the CLM club in which they organise several events to enhance our skills and to achieve new skills. He also tells us
-        about website on which several courses are available which will be added in our resume at the end of our degree. At the end he encourages us to participate in courses to achieve maximum certificates and lecture ended. 
+        about website on which several courses are available which will be added in our resume at the end of our degree. At the end he encourages us to participate in courses to achieve maximum certificates and lecture ended.
+
+
+
+        # Day 7
+
+1. Lecture by sports complex head of college (9:30am to 10:30am)
+      * As regularly started day with blessings of god and we settled in auditorium and resided Mool mantar, after that sir started giving
+        information about college physical activities and how to participate in that. He also told us about the facilities that college 
+        provides to students for sports.
+        
+2. Lecture by head of Digital marketing club (10:30am to 11:30am)
+      * Sir taught us about the club that how it promotes the campus by updating social media pages daily. Sir givem all the information about
+        the club and also about the activities that their team organise in a month. This year some of students from his team got passed out
+        from the campus and he gave us the oppurtunity to join their team by registering and giving interview to their team members.
+        
+3. Lecture by Dr.Randhir singh (11:30am to 12:30pm)
+      * Randhir sir gave us all the information about how the examinations are conducted in the campus in a transparent way as it is an
+        autonomous college, sir also told us about the reclearing the exams and the attendace criteria to appear in examination.
+        
+4. P2P class by our seniors (1:30pm to 2:30pm)
+      * This class was about learning c++ programming language in which we are provided with tasks about coding and we performed it very
+        well and also got checked by the senior.
+
+5. Chemistry lecture by Prof. Karan bhalla (2:30pm to 3:30pm)
+      *  Sir taken our class in very intresting manner. He started the class by providing us the blueprint of the syllabus and after that
+         sir started with the 1st chapter of chemistry that is water chemistry and taught us 3-4 topics about that chapter and ended the session.
+
                   
             
 
