@@ -125,7 +125,8 @@
         
 3. Lecture by Dr.Randhir singh (11:30am to 12:30pm)
       * Randhir sir gave us all the information about how the examinations are conducted in the campus in a transparent way as it is an
-        autonomous college, sir also told us about the reclearing the exams and the attendace criteria to appear in examination.
+        autonomous college, sir also told us about the reclearing the exams and the attendace criteria to appear in examination and how to
+        access the academic portal of college and all the features in that academic portal.
         
 4. P2P class by our seniors (1:30pm to 2:30pm)
       * This class was about learning c++ programming language in which we are provided with tasks about coding and we performed it very
