@@ -142,5 +142,17 @@
 
                   
             
+ # Day 8
 
+1. BEEE class by prof.Simranjeet kaur (9:00am to 10:30am)
+      * Mam started the lecture by basic introduction to electrical and basic fundamentals of it. I had written some notes and she also gave us numericals to solve for each topic.
+        It was a very great lecture by the mam.
+        
+        
+2. Lecture by Prof.Jaswant singh (10:30am to 12:00pm)
+      * Sir told us about how the IT branch works and gave us brief description about it. He asked us several questions to clear our vision and also give information about different
+        programming languages and also about their uses for diffenent task. Also told us about the Artifiical intelligence.
+
+3. Musical chair activity by E Cell club (2:30pm to 4:00pm)
+      * We played musical chairs in the mechanical seminar hall and we enjoyed it a lot. There are three rounds in the game and we played it very well and my friend stood first in this game.         
 
