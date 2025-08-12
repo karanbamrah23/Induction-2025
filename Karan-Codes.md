@@ -154,5 +154,50 @@
         programming languages and also about their uses for diffenent task. Also told us about the Artifiical intelligence.
 
 3. Musical chair activity by E Cell club (2:30pm to 4:00pm)
-      * We played musical chairs in the mechanical seminar hall and we enjoyed it a lot. There are three rounds in the game and we played it very well and my friend stood first in this game.         
+      * We played musical chairs in the mechanical seminar hall and we enjoyed it a lot. There are three rounds in the game and we played it very well and my friend stood first in this game.
+        
 
+
+
+ # Day 9
+        
+1. Maths class by Pragya mam (9:30am to 10:30am)
+      * Mam started with the introduction as she is new to us and its her first lecture in our class and we enjoyed a lot in this class.
+        She started with the basic introduction of first chapter in first unit that is partial differentiation.
+         
+2. Chemistry class by Amanpreet kaur sodhi mam (10:30am to 11:30pm)
+      * Mam gave us their introduction as this was our first interaction in college and she told us very important things about college and
+        different subjects to perform very well in all the subjects and to achieve great marks. She also gave brief description for chemistry
+        syllabus.
+
+3. BEEE class by prof.Simranjeet kaur (12:30pm to 1:30pm)
+      * Mam started the lecture by basic definitions of electrical and basic fundamentals of it. I had written some notes. It was a very great lecture by the mam.
+  
+4. English class by Parneet kaur mam (1:30pm to 2:30pm)
+      * This lecture was also mostly of introuctry lecture as it was our first interaction with mam. Mam asked us about our hobbies, strengths,
+        weakness, etc and also gave us activities to do in class. One from those is to write three lines about your skill in which 2 lines were
+        truth and 1 was lie. That was a great lecture by mam.
+
+
+ # Day 10
+
+1. BEEE class by prof.Simranjeet kaur (8:30am to 9:30am)
+     * Mam started the lecture by basic derications of electrical and basic fundamentals of it. I had written some notes and she also gave
+       us numericals to solve for each topic. It was a very great lecture by the mam.
+
+2. Maths class by Pragya mam (9:30am to 10:30am)
+      * Mam gave us different questions about topic that we started yesterday and today we did some new variety of questions as they were
+         very challenging and brain storming.
+
+3. PPS class by Sunil kumar sir (10:30am to 12:30pm)
+   * Actually in this class there is adjustment of sir as teachers are not alloted for PPS classes but we enjoyed a lot in this class because sir has a very unique personality and his laughing style is very cute and impressive as he can easily can be the reason of someones's laughter.
+  
+
+ 4. Chemistry class by Amanpreet kaur mam (1:30pm to 2:30pm)
+     * Today mam started with the first chapter of chemistry that is water chemistry and we came to know about it very curiously about 
+       hardness and softness of water.
+
+
+5. BEEE class by Simranjeet kaur (2:30pm to 3:30pm)
+    * In this class mam gave us 4 numericals to solve from which some are moderate and some are little brain challenging but we loved to solve
+      it as it was very fun.
