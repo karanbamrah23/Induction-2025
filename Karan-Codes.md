@@ -189,13 +189,39 @@
       * Mam gave us different questions about topic that we started yesterday and today we did some new variety of questions as they were
          very challenging and brain storming.
 
-3. PPS class by Sunil kumar sir (10:30am to 12:30pm)
+3. PPS class by Sunil saharan sir (10:30am to 12:30pm)
    * Actually in this class there is adjustment of sir as teachers are not alloted for PPS classes but we enjoyed a lot in this class because sir has a very unique personality and his laughing style is very cute and impressive as he can easily can be the reason of someones's laughter.
   
 
  4. Chemistry class by Amanpreet kaur mam (1:30pm to 2:30pm)
      * Today mam started with the first chapter of chemistry that is water chemistry and we came to know about it very curiously about 
        hardness and softness of water.
+
+
+5. BEEE class by Simranjeet kaur (2:30pm to 3:30pm)
+    * In this class mam gave us 4 numericals to solve from which some are moderate and some are little brain challenging but we loved to solve
+      it as it was very fun.
+
+
+
+ # Day 11
+
+1. PPS class by Sunil saharan sir (8:30am to 10:30am)
+     * Today we met again with sir and had a great class with sir and today sir told us about lab files and our first topic is conversation
+        and dialogue and we also written a conversation between two friends about and also asked about favourite or worst moment in our life.
+       
+2. Chemistry lab class by Mandeep mam (10:30am to 12:30pm)
+      * Mam started with the basic experiment and told us about all the glass operatus needed to perfrom that experiment and gave a brief
+        description about it also told us all the definitions and calculations about that experiment and a brief description about lab marks.
+        
+3. Mentoring class by mentor: Randeep kaur (1:30pm to 2:30pm)
+   * This was our first mentoring class and first interaction with mam also. This is not a class like other subject classes as it is a fun class in which fun activities are done and skills of personality development are told. Mam started with the introduction of students and told
+     us about second activity that we are going to perform next week.
+  
+
+ 4. English class by Parneet kaur mam (2:30pm to 3:30pm)
+     * In the last lecture mam gave us a homework to read the first page of novel The Bell Jar 10 times and we are going to read it in the next lecture and today was that day and we all performed well in this activity. This activity is full of fun and encourage us to learn.
+       
 
 
 5. BEEE class by Simranjeet kaur (2:30pm to 3:30pm)
