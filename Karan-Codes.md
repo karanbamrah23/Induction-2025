@@ -227,3 +227,26 @@
 5. BEEE class by Simranjeet kaur (2:30pm to 3:30pm)
     * In this class mam gave us 4 numericals to solve from which some are moderate and some are little brain challenging but we loved to solve
       it as it was very fun.
+
+
+       # Day 12
+
+1. BEEE class by Simranjeet kaur mam (9:30am to 10:30am)
+     * Today mam proceded the chapter of electricals with important derivations and definitions and introduced us some important
+       concepts about electricity. 
+       
+2. English lab (10:30am to 12:30pm)
+      * Actually it was a free class as mam was not absent and in this class we talked to our classmates and made a good interaction with
+        them and started to know them.
+        
+3. Chemistry class by Amanpreet kaur mam (1:30pm to 2:30pm)
+   * In this lecture mam gave us assignment to prepare and to submit it next month. She told us how to prepare that assignment about
+     what will be the main headings and their decriptions. Mam made different groups and each group had given a particular topic to make
+     assignment and after that mam continued with the syllabus.
+  
+
+ 4. English class by Parneet kaur mam (2:30pm to 3:30pm)
+     * In the lecture mam told us to present our homework to her as it was to read 10 lines of a novel of your choice in clear and
+       crisp voice in english and after that she also gave us feedback about our reading skills.
+       
+
