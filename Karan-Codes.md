@@ -250,7 +250,7 @@
 
 
 
-        # Day 13
+ # Day 13
         
 1. Maths class by Pragya mam (9:30am to 10:30am)
       * Mam continued with the syllabus and gave us several questions to solve.
@@ -264,7 +264,7 @@
   
 
 
-         # Day 14
+  # Day 14
 
 1. BEEE class by prof.Simranjeet kaur (8:30am to 9:30am)
      * Mam started the lecture by basic derications of AC fundamentals. I had written some notes and she also gave
