@@ -247,5 +247,63 @@
    4. English class by Parneet kaur mam (2:30pm to 3:30pm)
        * In the lecture mam told us to present our homework to her as it was to read 10 lines of a novel of your choice in clear and
          crisp voice in english and after that she also gave us feedback about our reading skills.
+
+
+
+        # Day 13
+        
+1. Maths class by Pragya mam (9:30am to 10:30am)
+      * Mam continued with the syllabus and gave us several questions to solve.
+         
+2. Chemistry class by Raman mam (10:30am to 11:30pm)
+      * Actually our chemistry teacher got changed and in this lecture it was our first interaction and we introduced ourself to teacher and after she
+        continued with the first chapter of chemistry that is water chemistry. 
+
+3. BEEE class by prof.Simranjeet kaur (12:30pm to 1:30pm)
+      * Mam started the lecture with the second chapter AC fundamentals. I had written some notes. It was a very great lecture by the mam.
+  
+
+
+         # Day 14
+
+1. BEEE class by prof.Simranjeet kaur (8:30am to 9:30am)
+     * Mam started the lecture by basic derications of AC fundamentals. I had written some notes and she also gave
+       us numericals to solve for each topic. It was a very great lecture by the mam.
+
+2. Maths class by Pragya mam (9:30am to 10:30am)
+      * Mam gave us different questions about topic that we started yesterday and today we did some new variety of questions as they were
+         very challenging and brain storming.
+
+3. PPS class by Sunil saharan sir (10:30am to 12:30pm)
+   * In this class mam taught about computer with the help of powerpoint presentation. She gave us all the basic knowledge about computer and also taught us
+     how it works.
+  
+
+ 4. Chemistry class by Raman mam (1:30pm to 2:30pm)
+     * Today mam started with the next topic of the first chapter that is how the hardness of water can be removed and some experiments about this process.
+
+
+5. BEEE class by Simranjeet kaur (2:30pm to 3:30pm)
+    * In this class mam gave us numericals to solve from which some are moderate and some are little brain challenging but we loved to solve
+      it as it was very fun.
+
+
+
+ # Day 15
+
+1. PPS class by Sunil saharan sir (8:30am to 10:30am)
+     * Today mam gave us all information about input and output devices that are ofently used in computer systems and gave us a brief description about them.
        
+2. Chemistry lab class by Mandeep mam (10:30am to 12:30pm)
+      * Today mam gave us instructions that how to perform an experiment and our first experiment was to check total hardness of water. After listening to all
+        the instructions we proceded to perform the experiment and got the accurate readings. 
+        
+3. Mentoring class by mentor: Randeep kaur (1:30pm to 2:30pm)
+   * Today we played a game in class which was we have to pick up a slip from the box and a word is written on it and we have to speak on it for 1-2 minutees. 
+  
+
+ 4. English class by Parneet kaur mam (2:30pm to 3:30pm)
+     * Today mam gave us an assignment to write a conversation between a client and an employee and gave us different words which are necesarry to use in
+        conversation.
+
 
