@@ -307,3 +307,19 @@
         conversation.
 
 
+ # Day 16
+
+   1. BEEE class by Simranjeet kaur mam (9:30am to 10:30am)
+      * Today mam proceded the chapter of AC fundamentals with important derivations and definitions and introduced us some important
+        concepts about AC circuit. 
+       
+   2. English lab by Manpreet mam (10:30am to 12:30pm)
+      * Today it was our first interaction with our teacher and it was great. Mam introduced herself to us we did the same to mam. Mam is very friendly
+        in nature.
+        
+   3. Chemistry class by Raman mam (1:30pm to 2:30pm)
+      * In this lecture mam proceded with the next topic of water chemistry that is how to soften the hard water or how to convert hard water into soft water.
+  
+
+   4. English class by Parneet kaur mam (2:30pm to 3:30pm)
+       * in this lecture i went to give NSS interview to get selected.
