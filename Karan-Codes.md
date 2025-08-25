@@ -323,3 +323,24 @@
 
    4. English class by Parneet kaur mam (2:30pm to 3:30pm)
        * in this lecture i went to give NSS interview to get selected.
+
+
+   # Day 17
+
+   1. Maths class by pragya mam (9:30am to 10:30am)
+      * Today mam introduced some new concepts of homogenous functions and we practised several questions of them.
+       
+   2. English class by parneet mam (10:30am to 11:30am)
+      * In this lecture mam given us an email to write which is about to apply to professor job in college of your own department. we had completed this task very
+        sincerely.
+        
+   3. BEEE class by simranjeet mam (12:30pm to 1:30pm)
+      * It was a free lecture because strength was not enough due to rain.
+  
+
+   4.  Chemistry class by Raman mam (1:30pm to 2:30pm)
+       * Mam procedded with the further topics which was softening of hard water by soda lime process.
+
+
+   5. Maths tutorial class by Pragya mam (2:30pm to 3:30pm)
+       * In this lecture mam gave us questions to about which was about the previous topic we had done with.             
