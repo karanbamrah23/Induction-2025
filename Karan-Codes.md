@@ -343,4 +343,26 @@
 
 
    5. Maths tutorial class by Pragya mam (2:30pm to 3:30pm)
-       * In this lecture mam gave us questions to about which was about the previous topic we had done with.             
+       * In this lecture mam gave us questions to about which was about the previous topic we had done with.
+
+
+
+# Day 18
+
+1. BEEE class by prof.Simranjeet kaur (8:30am to 9:30am)
+     * In this lecture we did some definitions and proofs and after that we further proceded towards numericals related to the topics that we had done recently.
+
+2. Maths class by Pragya mam (9:30am to 10:30am)
+      * Mam gave us variety of questions related to homogenous functions and we did all of them.
+
+3. PPS class by Sunil saharan sir (10:30am to 12:30pm)
+   * In this lecture we studied about different types of softwares that helps the computer to run and some other softwares which plays a vital role in the
+     computer systems.
+  
+
+ 4. Chemistry class by Amanpreet kaur mam (1:30pm to 2:30pm)
+     * In this class mam proceded with the further topics of chapter like boiler feed water, priming, sludge, scale, etc.
+
+
+5. BEEE class by Simranjeet kaur (2:30pm to 3:30pm)
+    * In this lecture we went to auditorium for an interaction with sir and he gave us information about our carrier.
