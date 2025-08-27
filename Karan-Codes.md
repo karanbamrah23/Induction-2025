@@ -370,7 +370,7 @@
 
 
 
-   # Day 19
+ # Day 19
 
 1. PPS class by Sunil saharan sir (8:30am to 10:30am)
      * It was a free lecture and in free timw i explored micrsoft visual studio code.
