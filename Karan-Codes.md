@@ -366,3 +366,22 @@
 
 5. BEEE class by Simranjeet kaur (2:30pm to 3:30pm)
     * In this lecture we went to auditorium for an interaction with sir and he gave us information about our carrier.
+
+
+
+
+   # Day 19
+
+1. PPS class by Sunil saharan sir (8:30am to 10:30am)
+     * It was a free lecture and in free timw i explored micrsoft visual studio code.
+       
+2. Chemistry lab class by Mandeep mam (10:30am to 12:30pm)
+      * Today mam gave us instructions that how to perform an experiment and our second experiment was to check the amount of chlorine content present in water. After listening to all
+        the instructions we proceded to perform the experiment and got the accurate readings. 
+        
+3. Mentoring class by mentor: Randeep kaur (1:30pm to 2:30pm)
+   * we had done aptitude questions which will help us in final year placements.
+  
+
+ 4. English class by Parneet kaur mam (2:30pm to 3:30pm)
+     * Today mam started with the first unit which was about communication and mam gave us a brief description about topics of that unit.    
