@@ -385,3 +385,24 @@
 
  4. English class by Parneet kaur mam (2:30pm to 3:30pm)
      * Today mam started with the first unit which was about communication and mam gave us a brief description about topics of that unit.    
+
+
+
+
+ # Day 20
+
+   1. BEEE class by Simranjeet kaur mam (9:30am to 10:30am)
+      * Today mam proceded with important derivations of resistor, inductor and capacitor and also gave us a brief description about them. 
+       
+   2. English lab (10:30am to 12:30pm)
+      * In this class mam continued with the introduction of students that were left or absent in the last class and also gave us an assignment to make.
+
+        
+   3. Chemistry class by Raman mam (1:30pm to 2:30pm)
+      * Today mam proceded further with the topics of the chapter and gave us a task before starting and that task was to read topics and teach them to the
+        students as well as to mam, which is a very fun creative activity. 
+  
+
+   4. English class by Parneet kaur mam (2:30pm to 3:30pm)
+       * In the lecture mam gave us an assignment to write about what type of communicator you are? and also taken our doubts about assignment and started with
+         topics of the chapter.
