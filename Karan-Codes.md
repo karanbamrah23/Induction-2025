@@ -406,3 +406,416 @@
    4. English class by Parneet kaur mam (2:30pm to 3:30pm)
        * In the lecture mam gave us an assignment to write about what type of communicator you are? and also taken our doubts about assignment and started with
          topics of the chapter.
+
+
+  # Day 11
+
+1. PPS class by Sunil saharan sir (8:30am to 10:30am)
+     * Today we met again with sir and had a great class with sir and today sir told us about lab files and our first topic is conversation
+        and dialogue and we also written a conversation between two friends about and also asked about favourite or worst moment in our life.
+       
+2. Chemistry lab class by Mandeep mam (10:30am to 12:30pm)
+      * Mam started with the basic experiment and told us about all the glass operatus needed to perfrom that experiment and gave a brief
+        description about it also told us all the definitions and calculations about that experiment and a brief description about lab marks.
+        
+3. Mentoring class by mentor: Randeep kaur (1:30pm to 2:30pm)
+   * This was our first mentoring class and first interaction with mam also. This is not a class like other subject classes as it is a fun class in which fun activities are done and skills of personality development are told. Mam started with the introduction of students and told
+     us about second activity that we are going to perform next week.
+  
+
+ 4. English class by Parneet kaur mam (2:30pm to 3:30pm)
+     * In the last lecture mam gave us a homework to read the first page of novel The Bell Jar 10 times and we are going to read it in the next lecture and today was that day and we all performed well in this activity. This activity is full of fun and encourage us to learn.
+       
+
+
+  5. BEEE class by Simranjeet kaur (2:30pm to 3:30pm)
+    * In this class mam gave us 4 numericals to solve from which some are moderate and some are little brain challenging but we loved to solve
+      it as it was very fun.
+
+ # Day 12
+
+   1. BEEE class by Simranjeet kaur mam (9:30am to 10:30am)
+      * Today mam proceded the chapter of electricals with important derivations and definitions and introduced us some important
+        concepts about electricity. 
+       
+   2. English lab (10:30am to 12:30pm)
+      * Actually it was a free class as mam was not absent and in this class we talked to our classmates and made a good interaction with
+        them and started to know them.
+        
+   3. Chemistry class by Amanpreet kaur mam (1:30pm to 2:30pm)
+      * In this lecture mam gave us assignment to prepare and to submit it next month. She told us how to prepare that assignment about
+       what will be the main headings and their decriptions. Mam made different groups and each group had given a particular topic to make
+       assignment and after that mam continued with the syllabus.
+  
+
+   4. English class by Parneet kaur mam (2:30pm to 3:30pm)
+       * In the lecture mam told us to present our homework to her as it was to read 10 lines of a novel of your choice in clear and
+         crisp voice in english and after that she also gave us feedback about our reading skills.
+
+
+
+ # Day 13
+        
+1. Maths class by Pragya mam (9:30am to 10:30am)
+      * Mam continued with the syllabus and gave us several questions to solve.
+         
+2. Chemistry class by Raman mam (10:30am to 11:30pm)
+      * Actually our chemistry teacher got changed and in this lecture it was our first interaction and we introduced ourself to teacher and after she
+        continued with the first chapter of chemistry that is water chemistry. 
+
+3. BEEE class by prof.Simranjeet kaur (12:30pm to 1:30pm)
+      * Mam started the lecture with the second chapter AC fundamentals. I had written some notes. It was a very great lecture by the mam.
+  
+
+
+  # Day 14
+
+1. BEEE class by prof.Simranjeet kaur (8:30am to 9:30am)
+     * Mam started the lecture by basic derications of AC fundamentals. I had written some notes and she also gave
+       us numericals to solve for each topic. It was a very great lecture by the mam.
+
+2. Maths class by Pragya mam (9:30am to 10:30am)
+      * Mam gave us different questions about topic that we started yesterday and today we did some new variety of questions as they were
+         very challenging and brain storming.
+
+3. PPS class by Sunil saharan sir (10:30am to 12:30pm)
+   * In this class mam taught about computer with the help of powerpoint presentation. She gave us all the basic knowledge about computer and also taught us
+     how it works.
+  
+
+ 4. Chemistry class by Raman mam (1:30pm to 2:30pm)
+     * Today mam started with the next topic of the first chapter that is how the hardness of water can be removed and some experiments about this process.
+
+
+5. BEEE class by Simranjeet kaur (2:30pm to 3:30pm)
+    * In this class mam gave us numericals to solve from which some are moderate and some are little brain challenging but we loved to solve
+      it as it was very fun.
+
+
+
+ # Day 15
+
+1. PPS class by Sunil saharan sir (8:30am to 10:30am)
+     * Today mam gave us all information about input and output devices that are ofently used in computer systems and gave us a brief description about them.
+       
+2. Chemistry lab class by Mandeep mam (10:30am to 12:30pm)
+      * Today mam gave us instructions that how to perform an experiment and our first experiment was to check total hardness of water. After listening to all
+        the instructions we proceded to perform the experiment and got the accurate readings. 
+        
+3. Mentoring class by mentor: Randeep kaur (1:30pm to 2:30pm)
+   * Today we played a game in class which was we have to pick up a slip from the box and a word is written on it and we have to speak on it for 1-2 minutees. 
+  
+
+ 4. English class by Parneet kaur mam (2:30pm to 3:30pm)
+     * Today mam gave us an assignment to write a conversation between a client and an employee and gave us different words which are necesarry to use in
+        conversation.
+
+
+ # Day 16
+
+   1. BEEE class by Simranjeet kaur mam (9:30am to 10:30am)
+      * Today mam proceded the chapter of AC fundamentals with important derivations and definitions and introduced us some important
+        concepts about AC circuit. 
+       
+   2. English lab by Manpreet mam (10:30am to 12:30pm)
+      * Today it was our first interaction with our teacher and it was great. Mam introduced herself to us we did the same to mam. Mam is very friendly
+        in nature.
+        
+   3. Chemistry class by Raman mam (1:30pm to 2:30pm)
+      * In this lecture mam proceded with the next topic of water chemistry that is how to soften the hard water or how to convert hard water into soft water.
+  
+
+   4. English class by Parneet kaur mam (2:30pm to 3:30pm)
+       * in this lecture i went to give NSS interview to get selected.
+
+
+   # Day 17
+
+   1. Maths class by pragya mam (9:30am to 10:30am)
+      * Today mam introduced some new concepts of homogenous functions and we practised several questions of them.
+       
+   2. English class by parneet mam (10:30am to 11:30am)
+      * In this lecture mam given us an email to write which is about to apply to professor job in college of your own department. we had completed this task very
+        sincerely.
+        
+   3. BEEE class by simranjeet mam (12:30pm to 1:30pm)
+      * It was a free lecture because strength was not enough due to rain.
+  
+
+   4.  Chemistry class by Raman mam (1:30pm to 2:30pm)
+       * Mam procedded with the further topics which was softening of hard water by soda lime process.
+
+
+   5. Maths tutorial class by Pragya mam (2:30pm to 3:30pm)
+       * In this lecture mam gave us questions to about which was about the previous topic we had done with.
+
+
+
+# Day 18
+
+1. BEEE class by prof.Simranjeet kaur (8:30am to 9:30am)
+     * In this lecture we did some definitions and proofs and after that we further proceded towards numericals related to the topics that we had done recently.
+
+2. Maths class by Pragya mam (9:30am to 10:30am)
+      * Mam gave us variety of questions related to homogenous functions and we did all of them.
+
+3. PPS class by Sunil saharan sir (10:30am to 12:30pm)
+   * In this lecture we studied about different types of softwares that helps the computer to run and some other softwares which plays a vital role in the
+     computer systems.
+  
+
+ 4. Chemistry class by Amanpreet kaur mam (1:30pm to 2:30pm)
+     * In this class mam proceded with the further topics of chapter like boiler feed water, priming, sludge, scale, etc.
+
+
+5. BEEE class by Simranjeet kaur (2:30pm to 3:30pm)
+    * In this lecture we went to auditorium for an interaction with sir and he gave us information about our carrier.
+
+
+
+
+ # Day 19
+
+1. PPS class by Sunil saharan sir (8:30am to 10:30am)
+     * It was a free lecture and in free timw i explored micrsoft visual studio code.
+       
+2. Chemistry lab class by Mandeep mam (10:30am to 12:30pm)
+      * Today mam gave us instructions that how to perform an experiment and our second experiment was to check the amount of chlorine content present in water. After listening to all
+        the instructions we proceded to perform the experiment and got the accurate readings. 
+        
+3. Mentoring class by mentor: Randeep kaur (1:30pm to 2:30pm)
+   * we had done aptitude questions which will help us in final year placements.
+  
+
+ 4. English class by Parneet kaur mam (2:30pm to 3:30pm)
+     * Today mam started with the first unit which was about communication and mam gave us a brief description about topics of that unit.    
+
+
+
+
+ # Day 20
+
+   1. BEEE class by Simranjeet kaur mam (9:30am to 10:30am)
+      * Today mam proceded with important derivations of resistor, inductor and capacitor and also gave us a brief description about them. 
+       
+   2. English lab (10:30am to 12:30pm)
+      * In this class mam continued with the introduction of students that were left or absent in the last class and also gave us an assignment to make.
+
+        
+   3. Chemistry class by Raman mam (1:30pm to 2:30pm)
+      * Today mam proceded further with the topics of the chapter and gave us a task before starting and that task was to read topics and teach them to the
+        students as well as to mam, which is a very fun creative activity. 
+  
+
+   4. English class by Parneet kaur mam (2:30pm to 3:30pm)
+       * In the lecture mam gave us an assignment to write about what type of communicator you are? and also taken our doubts about assignment and started with
+         topics of the chapter.
+
+ 
+ # Day 21
+
+1. PPS class by Sunil saharan sir (8:30am to 10:30am)
+     * Today we met again with sir and had a great class with sir and today sir told us about lab files and our first topic is conversation
+        and dialogue and we also written a conversation between two friends about and also asked about favourite or worst moment in our life.
+       
+2. Chemistry lab class by Mandeep mam (10:30am to 12:30pm)
+      * Mam started with the basic experiment and told us about all the glass operatus needed to perfrom that experiment and gave a brief
+        description about it also told us all the definitions and calculations about that experiment and a brief description about lab marks.
+        
+3. Mentoring class by mentor: Randeep kaur (1:30pm to 2:30pm)
+   * This was our first mentoring class and first interaction with mam also. This is not a class like other subject classes as it is a fun class in which fun activities are done and skills of personality development are told. Mam started with the introduction of students and told
+     us about second activity that we are going to perform next week.
+  
+
+ 4. English class by Parneet kaur mam (2:30pm to 3:30pm)
+     * In the last lecture mam gave us a homework to read the first page of novel The Bell Jar 10 times and we are going to read it in the next lecture and today was that day and we all performed well in this activity. This activity is full of fun and encourage us to learn.
+       
+
+
+  5. BEEE class by Simranjeet kaur (2:30pm to 3:30pm)
+    * In this class mam gave us 4 numericals to solve from which some are moderate and some are little brain challenging but we loved to solve
+      it as it was very fun.
+
+ # Day 22
+
+   1. BEEE class by Simranjeet kaur mam (9:30am to 10:30am)
+      * Today mam proceded the chapter of electricals with important derivations and definitions and introduced us some important
+        concepts about electricity. 
+       
+   2. English lab (10:30am to 12:30pm)
+      * Actually it was a free class as mam was not absent and in this class we talked to our classmates and made a good interaction with
+        them and started to know them.
+        
+   3. Chemistry class by Amanpreet kaur mam (1:30pm to 2:30pm)
+      * In this lecture mam gave us assignment to prepare and to submit it next month. She told us how to prepare that assignment about
+       what will be the main headings and their decriptions. Mam made different groups and each group had given a particular topic to make
+       assignment and after that mam continued with the syllabus.
+  
+
+   4. English class by Parneet kaur mam (2:30pm to 3:30pm)
+       * In the lecture mam told us to present our homework to her as it was to read 10 lines of a novel of your choice in clear and
+         crisp voice in english and after that she also gave us feedback about our reading skills.
+
+
+
+ # Day 23
+        
+1. Maths class by Pragya mam (9:30am to 10:30am)
+      * Mam continued with the syllabus and gave us several questions to solve.
+         
+2. Chemistry class by Raman mam (10:30am to 11:30pm)
+      * Actually our chemistry teacher got changed and in this lecture it was our first interaction and we introduced ourself to teacher and after she
+        continued with the first chapter of chemistry that is water chemistry. 
+
+3. BEEE class by prof.Simranjeet kaur (12:30pm to 1:30pm)
+      * Mam started the lecture with the second chapter AC fundamentals. I had written some notes. It was a very great lecture by the mam.
+  
+
+
+  # Day 24
+
+1. BEEE class by prof.Simranjeet kaur (8:30am to 9:30am)
+     * Mam started the lecture by basic derications of AC fundamentals. I had written some notes and she also gave
+       us numericals to solve for each topic. It was a very great lecture by the mam.
+
+2. Maths class by Pragya mam (9:30am to 10:30am)
+      * Mam gave us different questions about topic that we started yesterday and today we did some new variety of questions as they were
+         very challenging and brain storming.
+
+3. PPS class by Sunil saharan sir (10:30am to 12:30pm)
+   * In this class mam taught about computer with the help of powerpoint presentation. She gave us all the basic knowledge about computer and also taught us
+     how it works.
+  
+
+ 4. Chemistry class by Raman mam (1:30pm to 2:30pm)
+     * Today mam started with the next topic of the first chapter that is how the hardness of water can be removed and some experiments about this process.
+
+
+5. BEEE class by Simranjeet kaur (2:30pm to 3:30pm)
+    * In this class mam gave us numericals to solve from which some are moderate and some are little brain challenging but we loved to solve
+      it as it was very fun.
+
+
+
+ # Day 25
+
+1. PPS class by Sunil saharan sir (8:30am to 10:30am)
+     * Today mam gave us all information about input and output devices that are ofently used in computer systems and gave us a brief description about them.
+       
+2. Chemistry lab class by Mandeep mam (10:30am to 12:30pm)
+      * Today mam gave us instructions that how to perform an experiment and our first experiment was to check total hardness of water. After listening to all
+        the instructions we proceded to perform the experiment and got the accurate readings. 
+        
+3. Mentoring class by mentor: Randeep kaur (1:30pm to 2:30pm)
+   * Today we played a game in class which was we have to pick up a slip from the box and a word is written on it and we have to speak on it for 1-2 minutees. 
+  
+
+ 4. English class by Parneet kaur mam (2:30pm to 3:30pm)
+     * Today mam gave us an assignment to write a conversation between a client and an employee and gave us different words which are necesarry to use in
+        conversation.
+
+
+ # Day 26
+
+   1. BEEE class by Simranjeet kaur mam (9:30am to 10:30am)
+      * Today mam proceded the chapter of AC fundamentals with important derivations and definitions and introduced us some important
+        concepts about AC circuit. 
+       
+   2. English lab by Manpreet mam (10:30am to 12:30pm)
+      * Today it was our first interaction with our teacher and it was great. Mam introduced herself to us we did the same to mam. Mam is very friendly
+        in nature.
+        
+   3. Chemistry class by Raman mam (1:30pm to 2:30pm)
+      * In this lecture mam proceded with the next topic of water chemistry that is how to soften the hard water or how to convert hard water into soft water.
+  
+
+   4. English class by Parneet kaur mam (2:30pm to 3:30pm)
+       * in this lecture i went to give NSS interview to get selected.
+
+
+   # Day 27
+
+   1. Maths class by pragya mam (9:30am to 10:30am)
+      * Today mam introduced some new concepts of homogenous functions and we practised several questions of them.
+       
+   2. English class by parneet mam (10:30am to 11:30am)
+      * In this lecture mam given us an email to write which is about to apply to professor job in college of your own department. we had completed this task very
+        sincerely.
+        
+   3. BEEE class by simranjeet mam (12:30pm to 1:30pm)
+      * It was a free lecture because strength was not enough due to rain.
+  
+
+   4.  Chemistry class by Raman mam (1:30pm to 2:30pm)
+       * Mam procedded with the further topics which was softening of hard water by soda lime process.
+
+
+   5. Maths tutorial class by Pragya mam (2:30pm to 3:30pm)
+       * In this lecture mam gave us questions to about which was about the previous topic we had done with.
+
+
+
+# Day 28
+
+1. BEEE class by prof.Simranjeet kaur (8:30am to 9:30am)
+     * In this lecture we did some definitions and proofs and after that we further proceded towards numericals related to the topics that we had done recently.
+
+2. Maths class by Pragya mam (9:30am to 10:30am)
+      * Mam gave us variety of questions related to homogenous functions and we did all of them.
+
+3. PPS class by Sunil saharan sir (10:30am to 12:30pm)
+   * In this lecture we studied about different types of softwares that helps the computer to run and some other softwares which plays a vital role in the
+     computer systems.
+  
+
+ 4. Chemistry class by Amanpreet kaur mam (1:30pm to 2:30pm)
+     * In this class mam proceded with the further topics of chapter like boiler feed water, priming, sludge, scale, etc.
+
+
+5. BEEE class by Simranjeet kaur (2:30pm to 3:30pm)
+    * In this lecture we went to auditorium for an interaction with sir and he gave us information about our carrier.
+
+
+
+
+ # Day 29
+
+1. PPS class by Sunil saharan sir (8:30am to 10:30am)
+     * It was a free lecture and in free timw i explored micrsoft visual studio code.
+       
+2. Chemistry lab class by Mandeep mam (10:30am to 12:30pm)
+      * Today mam gave us instructions that how to perform an experiment and our second experiment was to check the amount of chlorine content present in water. After listening to all
+        the instructions we proceded to perform the experiment and got the accurate readings. 
+        
+3. Mentoring class by mentor: Randeep kaur (1:30pm to 2:30pm)
+   * we had done aptitude questions which will help us in final year placements.
+  
+
+ 4. English class by Parneet kaur mam (2:30pm to 3:30pm)
+     * Today mam started with the first unit which was about communication and mam gave us a brief description about topics of that unit.    
+
+
+
+
+ # Day 30
+
+   1. BEEE class by Simranjeet kaur mam (9:30am to 10:30am)
+      * Today mam proceded with important derivations of resistor, inductor and capacitor and also gave us a brief description about them. 
+       
+   2. English lab (10:30am to 12:30pm)
+      * In this class mam continued with the introduction of students that were left or absent in the last class and also gave us an assignment to make.
+
+        
+   3. Chemistry class by Raman mam (1:30pm to 2:30pm)
+      * Today mam proceded further with the topics of the chapter and gave us a task before starting and that task was to read topics and teach them to the
+        students as well as to mam, which is a very fun creative activity. 
+  
+
+   4. English class by Parneet kaur mam (2:30pm to 3:30pm)
+       * In the lecture mam gave us an assignment to write about what type of communicator you are? and also taken our doubts about assignment and started with
+         topics of the chapter.
+
+ 
+
+
+ 
